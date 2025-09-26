@@ -1,7 +1,7 @@
 
-<img width="800" height="800" alt="Tumblr_l_118149613657428" src="https://github.com/user-attachments/assets/c583a052-034d-4aa3-9b39-b77477cfb03a" />
+![d8225ee23fad1d489af8c30ea5094b1c](https://github.com/user-attachments/assets/e42d2949-dd25-41a8-86fb-c30abee49590)
 
 
 
 
-(   弗洛    ·    25   ) ⠀  𑇛 ⠀⠀⠀⠀         ⠀⠀          ⠀⠀⠀          𝖥𝖺𝗇𝗍𝖺𝗌𝗒 ⠀⠀⠀         𝖧𝖾𝖺𝗏𝖾𝗇.
+  弗    ·    25    ⠀⠀⠀⠀         ⠀⠀          ⠀⠀⠀          waking up ⠀⠀⠀        
